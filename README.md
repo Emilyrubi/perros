@@ -12,10 +12,31 @@ Desde un Chihuahua hasta un Gran Danés, no existe en la tierra una especie de m
 
 ## Perros de razas grandes
 los perros de razaz grandes destacan por su tranquilidad y bondad.
-> como la vistosidad de akita japones
+> como la vistosidad de akita japones.
+
+
+![image](https://github.com/user-attachments/assets/cf44a46d-5716-42a4-bc83-efd0731ab50e)
+
+
 ### Perros de razas gigantes 
 Destacan por su **bondad y gran tamaño**
 
+>como el san bernardo.
+
 ![image](https://github.com/user-attachments/assets/0c6e29d9-906a-4ced-9d7c-150855198f0d)
+
+### Perros de razas medianas 
+se caracterizan por su energia.
+>como el Cocker spaniel ingles .
+
+![image](https://github.com/user-attachments/assets/849b1000-db60-4e57-8801-b8757e5a001c)
+
+### Perros de razas pequeñas.
+secracterizan por su diminuto tamaño y energia, algunos de ellos suelen ser agresivos.
+>como el Chihuahua.
+
+![image](https://github.com/user-attachments/assets/7013bc59-73d5-41ce-a656-d7e4149f6534)
+
+
 
 <https://www.expertoanimal.com/los-perros-mas-grandes-del-mundo-4008.html>
