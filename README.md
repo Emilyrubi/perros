@@ -32,7 +32,7 @@ se caracterizan por su energia.
 ![image](https://github.com/user-attachments/assets/849b1000-db60-4e57-8801-b8757e5a001c)
 
 ### Perros de razas pequeñas.
-secracterizan por su diminuto tamaño y energia, algunos de ellos suelen ser agresivos.
+se caracterizan por su diminuto tamaño y energia, algunos de ellos suelen ser agresivos.
 >como el Chihuahua.
 
 ![image](https://github.com/user-attachments/assets/7013bc59-73d5-41ce-a656-d7e4149f6534)
